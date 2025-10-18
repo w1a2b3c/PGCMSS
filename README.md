@@ -1,7 +1,7 @@
 # PGCMSS
 三端影视源码苹果cms自动采集电影视频网站源码手机H5源码带VIP
 # 免费下载链接：https://pan.quark.cn/s/e3592d33d7ff
-
+链接：https://pan.xunlei.com/s/VObsYYMaXI78YnnwEGQXDBFHA1?pwd=jpsa# 复制这段内容后打开「手机迅雷 App」即可获取。无需下载在线查看，视频原画享倍速播放
 <img width="1440" height="3200" alt="image" src="https://github.com/user-attachments/assets/4b8aa377-eb6f-4fd7-abfe-f381c51b37ca" />
 <img width="1440" height="3200" alt="image" src="https://github.com/user-attachments/assets/96b3dcb7-368e-4998-a4e0-1b9ce503f9cd" />
 <img width="1440" height="3200" alt="image" src="https://github.com/user-attachments/assets/87a57c21-4598-4089-9bd0-fe6befce86a2" />
